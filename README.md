@@ -7,41 +7,41 @@ Sunny!!
 
 
 
-I like Aizawa and Radiohead
+I love Aizawa and Radiohead !!! >.<
 
 
 
 
-He/They
+he/they .. Demifluid, Demiaroace, Androsexual 
 
 
 
 
-Mainly in Mha Area or island! 
-
-
-
-
-
+Mainly in Mha Area or island !! 
 
 
 
 
 
 
-🖤 18th May is my birthday!
+
+
+
+
+
+🖤 18th May is my birthday, i want presents../j
 
 ⚠️
 
-‪‪❤︎ ‬no specific dni criteria
+‪‪❤︎ ‬no specific dni criteria, just be nice <3
 
 💢
 
-🖤 always interact with a little caution!
+🖤 always interact with a little caution !!
 
 🐱‪‪
 
-❤︎‬ Multi-Fandom
+❤︎‬ Multi-Fandom, main fandom is MHA :3 
 
 
 
