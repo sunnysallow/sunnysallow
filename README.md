@@ -22,8 +22,6 @@ Mainly in Mha Area or island!
 
 
 
-Sign my Strawpage please!
-
 
 
 
