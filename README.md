@@ -59,7 +59,7 @@ Sunny !! >u<
 **STATUS MEANINGS**
 
 
-🟢 ~ up for interactions, come at me !!
+🟢 ~ up for interactions, just not seeking them !!
 
 🌙 ~ semi-afk (on and off afk), or reading chats but not replying :]
 
