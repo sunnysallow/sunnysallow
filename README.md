@@ -1,52 +1,73 @@
+
 <img width="500" height="246" alt="ec27c00a87e1b03f83517a8f878d3ee6" src="https://github.com/user-attachments/assets/c0afb56a-8eb9-46d6-9b2e-ffaa32a278d1" />
 
 
-Sunny!! 
+Sunny !! >u<
 ===========================
 
 
+***A lil about me !!***
 
 
-I love Aizawa and Radiohead !!! >.<
+🌙 Aizawa Shouta is my comf character, Midoriya Izuku and Amajiki Tamaki are my fictkins ><
+
+🐦‍⬛ My favourite animals are the Giant Phantom jellyfish and the Tamaulipas Crow!
+
+★ current prns are he/they, I'm Demifluid, Demiaroace and Androsexual ^^
+
+🎁 18th May is my birthday, i want presents../j
+
+============================
+
+***PonyTown !!***
 
 
+**INTERACTING WITH ME**
+
+🐈‍⬛ I sit mainly in mha Area or i chill at my party's island !! Could be in the kny area occasionally :]
+
+⚠️ NEVER COPY MY SKINS UNLESS I TELL YOU YOU CAN COPY. REFERENCING IS OKAY!
+
+💢 I love c + h, I'll be fine with it even if I have "dni" in my name. (unless I say otherwise, which I'd like for you to respect!)
+
+💭 always interact with a little caution, unless stated in my name to int with extra caution !! (iwec)
+
+💫‪‪ NO FRIEND REQUESTS IF WE HAVEN'T SPOKEN.
+
+🖤‬ Multi-Fandom, main fandom is MHA :3 
+
+❓️ *tone indicators are very much appreciated, and I will always use them because I feel more comfortable doing so!*
 
 
-he/they .. Demifluid, Demiaroace, Androsexual 
+**DNI CRITERIA**
+
+‪‪❤︎ IF TRUMP / ‬MAGA SUPPORTER
+
+❤︎ IF ANTI LGBTQIA+
+
+❤︎ IF LOOKING FOR DRAMA
+
+❤︎ IF ABLEIST, RACIST, MISOGYNIST, MISANDRIST AND/OR DISCRIMINATORY AGAINST ANY KIND OF UPBRINGING.
+
+❤︎ IF ANY VARIATION OF "DNI" IS IN MY NAME, unless for example its DNIUF and you're a friend -w-
+(sad that it has to be said, but some people interact anyway. UNWANTED INTERACTIONS EARN 24 HOUR HIDE.) 
+
+=========================
+
+**STATUS MEANINGS**
 
 
+🟢 ~ up for interactions, come at me !!
 
+🌙 ~ semi-afk (on and off afk), or reading chats but not replying :]
 
-Mainly in mha Area or island !! Could be in kny area occasionally.
+🛑 ~ overwhelmed. might relocate to a quiet area or to island map.
 
+🛑 + 💤 ~ afk, might disconnect from inactivity.
 
+🌙 + 💤 ~ afk, will be back within 5 minutes.
 
-
-
-
-
-
-
-
-
-🖤 18th May is my birthday, i want presents../j
-
-⚠️ NEVER COPY SKINS UNLESS I SAY "You can copy"
-
-‪‪❤︎ ‬no specific dni criteria, just be nice <3
-
-💢 I love c + h, I'll be fine with it even if I have "dni" in my name (unless I say so ^^
-
-🖤 always interact with a little caution !!
-
-🐱‪‪ NO FRIEND REQUESTS IF WE HAVEN'T SPOKEN.
-
-❤︎‬ Multi-Fandom, main fandom is MHA :3 
-
-**tone indicators much appreciated!**
-======================================
-
-
+🟢 + 💤 ~ I'm probably drawing and listening to music lmao- you can try to int, but if I don't reply I'm deep in my own world.
 
 
 
