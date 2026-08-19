@@ -17,7 +17,7 @@ he/they .. Demifluid, Demiaroace, Androsexual
 
 
 
-Mainly in Mha Area or island !! 
+Mainly in mha Area or island !! Could be in kny area occasionally.
 
 
 
@@ -31,18 +31,20 @@ Mainly in Mha Area or island !!
 
 🖤 18th May is my birthday, i want presents../j
 
-⚠️
+⚠️ NEVER COPY SKINS UNLESS I SAY "You can copy"
 
 ‪‪❤︎ ‬no specific dni criteria, just be nice <3
 
-💢
+💢 I love c + h, I'll be fine with it even if I have "dni" in my name (unless I say so ^^
 
 🖤 always interact with a little caution !!
 
-🐱‪‪
+🐱‪‪ NO FRIEND REQUESTS IF WE HAVEN'T SPOKEN.
 
 ❤︎‬ Multi-Fandom, main fandom is MHA :3 
 
+**tone indicators much appreciated!**
+======================================
 
 
 
