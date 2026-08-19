@@ -17,6 +17,8 @@ Sunny !! >u<
 
 🎁 18th May is my birthday, i want presents../j
 
+🧭 I speak English and European Portuguese fluently !!
+
 ============================
 
 ***PonyTown !!***
