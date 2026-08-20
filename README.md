@@ -13,7 +13,7 @@ Sunny !! >u<
 
 🐦‍⬛ My favourite animals are the Giant Phantom jellyfish and the Tamaulipas Crow!
 
-★ current prns are he/they, I'm Demifluid, Demiaroace and Androsexual ^^
+★ current prns are he/they, I'm Demifluid, Demiaroace and Androromantic Homosexual ^^
 
 🎁 18th May is my birthday, i want presents../j
 
