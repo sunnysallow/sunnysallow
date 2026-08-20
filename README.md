@@ -30,7 +30,7 @@ Sunny !! >u<
 
 ⚠️ NEVER COPY MY SKINS UNLESS I TELL YOU YOU CAN COPY. REFERENCING IS OKAY!
 
-💢 I love c + h, I'll be fine with it even if I have "dni" in my name. (unless I say otherwise, which I'd like for you to respect!)
+💢 I love c + h and have MAJOR touch comf, I'll be fine with it even if I have "dni" in my name. (unless I say otherwise, which I'd like for you to respect!)
 
 💭 always interact with a little caution, unless stated in my name to int with extra caution !! (iwec)
 
